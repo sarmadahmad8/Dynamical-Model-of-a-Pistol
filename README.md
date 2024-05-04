@@ -1,0 +1,1 @@
+# Dynamical-Model-of-a-Pistol
